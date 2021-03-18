@@ -1,0 +1,1 @@
+# isletimSistemleri_ProjeDizini
